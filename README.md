@@ -18,4 +18,4 @@ Here are some ideas to get you started:
 -->
 
 <h1>💬 ASK ME ANYTHING</h1>
-#### dltkd2786@gmail.com
+dltkd2786@gmail.com
